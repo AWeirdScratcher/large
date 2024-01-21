@@ -1,0 +1,50 @@
+# ☕ large
+
+Lyrics showed below.
+
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
+Hamburger, cheeseburger, Big Mac, Whopper<br />
