@@ -1,6 +1,6 @@
 # ☕ large
 
-Lyrics showed below.
+[View Source](https://www.youtube.com/watch?v=mYBRTi8MM3c) • [Medium](https://medium.com)
 
 Hamburger, cheeseburger, Big Mac, Whopper<br />
 Hamburger, cheeseburger, Big Mac, Whopper<br />
