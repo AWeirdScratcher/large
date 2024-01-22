@@ -1,8 +1,5 @@
-# LLM-Driven Search in Python
+# LLM-Driven Search in Python [![Medium](https://img.shields.io/badge/Medium-12100E?style=for-the-badge&logo=medium&logoColor=white)](https://medium.com/@aweirdscratcher/llm-driven-search-in-python-c10a9bf8560c)
 
 You don't need OpenAI API access.
 
-
-<a target="_blank" href="https://colab.research.google.com/github/AWeirdScratcher/large/blob/main/llm-driven-search/Medium_LLM_Driven_Search.ipynb">
-  <img src="https://colab.research.google.com/assets/colab-badge.svg" alt="Open In Colab"/>
-</a>
+[![Open In Colab](https://colab.research.google.com/assets/colab-badge.svg)](https://colab.research.google.com/github/AWeirdScratcher/large/blob/main/llm-driven-search/Medium_LLM_Driven_Search.ipynb)
